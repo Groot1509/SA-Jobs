@@ -21,7 +21,7 @@ Working in Ekurhuleni means being part of an environment where innovation thrive
 - Environmental Consultant
 - Administrative Assistant
 
-**[Apply now](https://vacanciesonlineapplication.com/job/www-ekurhuleni-gov-za-vacancies/)** and take the first step toward a rewarding career in Ekurhuleni!
+**[Apply now](https://cozavacancies.com/job/www-ekurhuleni-gov-za-vacancies/)** and take the first step toward a rewarding career in Ekurhuleni!
 
 ## 2. SAPS Vacancies: Join the Force That Serves and Protects
 The South African Police Service (SAPS) offers one of the most rewarding career paths for individuals who are passionate about making a difference in their communities. As a member of SAPS, you'll play a crucial role in ensuring the safety and security of the nation.
@@ -32,7 +32,7 @@ The South African Police Service (SAPS) offers one of the most rewarding career 
 - Forensic Investigator
 - Administrative Officer
 
-**[Apply now](https://vacanciesonlineapplication.com/job/www-saps-gov-za-vacancies/)** and be a part of a team that is dedicated to making South Africa a safer place!
+**[Apply now](https://cozavacancies.com/job/www-saps-gov-za-vacancies/)** and be a part of a team that is dedicated to making South Africa a safer place!
 
 ## 3. Tshwane Vacancies: Your Gateway to Professional Growth in the Capital
 Tshwane, the administrative capital of South Africa, boasts a thriving job market with opportunities in multiple sectors, from healthcare to engineering, education to finance.
@@ -43,7 +43,7 @@ Tshwane, the administrative capital of South Africa, boasts a thriving job marke
 - IT Systems Administrator
 - Health Services Coordinator
 
-**[Apply now](https://vacanciesonlineapplication.com/job/www-tshwane-gov-za/)** to explore the exciting opportunities that await you in Tshwane!
+**[Apply now](https://cozavacancies.com/?post_type=job_listing&p=69)** to explore the exciting opportunities that await you in Tshwane!
 
 ## Conclusion: Take the Leap and Apply Today!
 Ekurhuleni, SAPS, and Tshwane are all offering incredible job opportunities for talented individuals ready to make an impact. Don’t wait—**apply now** and step into a world of professional growth and opportunity!
